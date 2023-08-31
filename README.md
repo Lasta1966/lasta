@@ -1,0 +1,2 @@
+# lasta
+Pats sau fainas
